@@ -1,8 +1,3 @@
-Here's an updated GitHub profile description based on the information in your CV:
-
-
----
-
 Hi there, I'm Salah Swidan 👋
 
 🚀 About Me:
